@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about tech
 - 📫 How to reach me: reach kyu karna hai bhai ?
 - 😄 Pronouns: obv he/him
-- ⚡ Fun fact: bhaag yaha se
+- ⚡ Fun fact: bhaag yaha se haha, just joking ,
 
